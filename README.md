@@ -1,0 +1,1 @@
+Dosah hostitel – vydání (Sparkle)
